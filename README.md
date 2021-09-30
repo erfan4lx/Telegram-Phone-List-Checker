@@ -3,7 +3,7 @@ The best tool to check the list of phone numbers for cut which have Telegram acc
 
 Contact with me to get the Password of Zip file on :
 
- Telegram : https://t.me/erfan4lx
+ Telegram : https://t.me/erfan4lx1
   
  Email : erfan4lx@gmail.com
  
@@ -13,7 +13,7 @@ Show demo video on Instagram : https://www.instagram.com/p/CTSUJVVFtyf/
 
 🆔My YouTube Channel : http://youtube.com/erfan4lx
 
-🆔My Telegram Channel : https://t.me/Erfan4lxTeam
+🆔My Telegram Channel : https://t.me/Erfan4lxTeam1
 
 🆔My Instagram Page : https://www.instagram.com/_erfan4lx_/
 
