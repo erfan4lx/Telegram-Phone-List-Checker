@@ -5,7 +5,7 @@ Purchase it on my website : https://erfan4lx.com/product/telegram-phone-list-che
 
 Contact with me to get the Password of Zip file on :
 
- Telegram : https://t.me/erfan4lx7
+ Telegram : https://t.me/erfan4lx0
   
  Email : erfan4lx@gmail.com
  
